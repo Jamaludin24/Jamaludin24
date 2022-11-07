@@ -1,7 +1,7 @@
 ### Hi there 👋
 Hi everyone, I'm Jamaludin24.
 * I live in Ukraine, I did not leave my country at a difficult moment and at the moment I am here.
-**Jamaludin24/Jamaludin24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ ✨ _special_ ✨ 
 * I am a norunner and a validator
 📂Languages:
 
