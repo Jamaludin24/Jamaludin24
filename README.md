@@ -19,4 +19,4 @@ Hi everyone, I'm Jamaludin24.
 * https://www.masa.finance/
 * https://www.minima.global/
 * https://www.gear-tech.io/
-* elliotbason@yahoo.com Mail for cooperation
+
